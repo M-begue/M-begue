@@ -2,6 +2,6 @@
 👀 I’m interested in videos games
 🌱 I’m currently learning IT development on University of Limoges
 💞️ I’m looking to collaborate on GitHub
-📫 How to reach me : begue.matteo24@gmail.com
+📫 How to reach me : matteo.begue@etu.unilim.fr
 😄 Pronouns: male
 ⚡ Fun fact: I really interessted with the IT field but i really like sports.
